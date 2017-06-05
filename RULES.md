@@ -1,3 +1,4 @@
-# Really Posh People Clubd
-Generic rules and informationddd
-hhh
+# Really Posh People Club
+Generic rules and information
+-----------------------------
+1. kys
